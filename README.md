@@ -1,3 +1,0 @@
-# Vikings
-
-Oi :D
